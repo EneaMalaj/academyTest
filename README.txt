@@ -1,1 +1,3 @@
-what you look at is where you're aiming towards
+what you look at is what you aim at
+
+- Jordan B. Peterson
