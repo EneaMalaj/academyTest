@@ -1,1 +1,1 @@
-what you look at is where you're aiming
+what you look at is where you're aiming towards
